@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently practicing coding and also learning about cloud
 - 💞️ I’m looking to collaborate on ...
-- 📫 https://www.linkedin.com/in/nirmalya-shit-87390a224
+- 📫 Reach me at www.linkedin.com/in/nirmalya-shit-87390a224
 
 <!---
 --->
